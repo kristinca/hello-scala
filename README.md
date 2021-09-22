@@ -1,1 +1,1 @@
-Scala - let's gooo! ^^
+Scala 2 - let's gooo! ^^
